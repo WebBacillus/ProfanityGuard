@@ -4,22 +4,18 @@
 <br/>
 <p align="center" style="flex-direction:column;">
   <img src=https://github.com/webbalaka/ProfanityGuard/assets/108358070/829e97e0-9b19-4975-9655-cdf6af866607)/>
-  https://www.facebook.com/groups/9arm.community/posts/3298437720444916/
 </p>
 <br/>
 <p align="center">
   <img src=https://github.com/webbalaka/ProfanityGuard/assets/108358070/fde8bb83-4c2c-456c-9556-60562a30462a)/>
-  https://www.facebook.com/cloudspherecaster/posts/pfbid0W6F6WLZuaGJedzpbsTLdqN6wPLb25G7aFBos8oe5LxF44nLSoEEzXNtZWSUse6GQl
 </p>
 <br/>
 <p align="center">
   <img src=https://github.com/webbalaka/ProfanityGuard/assets/108358070/5a301ca5-df09-4b15-bcc7-d6ad406de854)/>
-  https://www.facebook.com/FE000025400/posts/pfbid0q9fjFjzgXuuhqNh2oyGqJoE7Gaz5syNXuXmDWxr4FJWvHqr5E9b5JJ4pwMqEtH7Bl
 </p>
 <br/>
 <p align="center">
   <img src=https://github.com/webbalaka/ProfanityGuard/assets/108358070/edb3818b-cede-4cfa-81b8-257da996c5d2)/>
-  https://www.facebook.com/cloudspherecaster/posts/pfbid0D5K5Y4fhjnr3YhmeES3g5fzNNgfPaGLpiDQfNgiqeev7zgdreQq1biqRWRGu9pyvl
 </p>
 <br/>
 <p>
